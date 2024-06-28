@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Sraj31
-- 👀 I’m interested in ...block chain technologies
-- 🌱 I’m currently learning ...Lyoohju
-- 💞️ I’m looking to collaborates on ...fcebkook
+- 👀 I’m interested in ...block chain technologieslyuoohju
+- 💞️ I’m looking to collaborates on ...fcghn
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun facts: ...

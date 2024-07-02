@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Sraj31
 - 👀 I’m interested in ...block chain technologieslyuoohju
 - 💞️ I’m looking to collaborates on ...
-- 📫 How to reach me ...jhgfs
-- 😄 Pronouns: ...huslong
+- 📫 How to reach me ...olab
+- 😄 Pronouns: ...fungsung
 - ⚡ Fun facts: ...
 
 <!---

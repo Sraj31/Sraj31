@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sraj31
 - 👀 I’m interested in ...block chain technologie
-- 💞️ I’m looking to collaborates on ...ghonto
-- 📫 How to reach me ...gomble
+- 💞️ I’m looking to collaborates on ...ghonto gola
+- 📫 How to reach me ...gomble sunbai
 - 😄 Pronouns: ...monto
 - ⚡ Fun facts: ...optimism
 <!---

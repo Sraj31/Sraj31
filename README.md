@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sraj31
 - 👀 I’m interested in ...block chain technologie bumchak
-- 💞️ I’m looking to collaborates on ...ghonto golangm lumpk
-- 📫 How to reach me ...gomble sunbai olbak loluk
+- 💞️ I’m looking to collaborates on ...ghonto golangm jhumpak
+- 📫 How to reach me ...gomble sunbai olbak loluk balu
 - 😄 Pronouns: ...moto sanu lumpa humpak holuk
 - ⚡ Fun facts: ...scroll op umpajumpak
 <!---

@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborates on ...
 - 📫 How to reach me .. goodd
 - 😄 Pronouns: ...moto
-- ⚡ Fun facts: ...scroll hohhjj
+- ⚡ Fun facts: ...scroll hohhjjsqad
 - 
 Sraj31/Sraj31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

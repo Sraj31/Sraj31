@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sraj31
 - 👀 I’m interested in ...block chain technologie
 - 💞️ I’m looking to collaborates on ...
-- 📫 How to reach me .. gooddbbn
+- 📫 How to reach me .. gooddbb
 - 😄 Pronouns: ...mot
 - ⚡ Fun facts: ...scroll hohis
 - 

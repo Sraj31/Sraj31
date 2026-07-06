@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...block chain technologie
 - 💞️ I’m looking to collaborates on ...
 - 📫 How to reach me .. gooddbbns
-- 😄 Pronouns: ...moto
+- 😄 Pronouns: ...mot
 - ⚡ Fun facts: ...scroll hohis
 - 
 Sraj31/Sraj31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
